@@ -1,0 +1,2 @@
+# ideal
+https://idealpaykasa.com/
